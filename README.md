@@ -1,16 +1,11 @@
-- 👾 Hi, I’m @cyumee
-  
-- 😶‍🌫 I’m interested in: pretty people,duh. and music! >.<
+THING'S ABOUT ME!!
 
-- 🏫 I’m currently learning: how math even work's cuz i cant calculate your beauty at all, heh.
-  
-- 🙈 I’m looking to collaborate on: your empty place on heart, heh.
-  
-- 📫 How to reach me ? : i like to be at the jjk spot {MarketPlace.} cafe, or library.
+i'm into romance,historical,music!
+-Deftone's enjoyer
 
-- 🪐 Pronouns: goes with what gender character im playing with.
-  
-- ⚡ Fun fact: I am very interested in historical,music and such.
+Give it a taste and see what u feel about it~
+So try Another Lifetime - S33R
+And dont dissapoint me!
 
 -Also i dont take insult's lightly, if you come up to me only to pick up fight, dni please.
 Nsfw jokes are fine,but they have limit's.
