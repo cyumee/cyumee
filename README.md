@@ -61,9 +61,10 @@ So try Another Lifetime - S33R
 And dont dissapoint me!
 
 -Also i dont take insult's lightly, if you come up to me only to pick up fight, dni please.
-Nsfw jokes are fine,but they have limit's.
-Interact if you want to be friend's with me.
-Please dont be a creep istg ill block u if u do.
+Nsfw jokes are fine,but they have limit's!!!
+Interact if you want to be friend's with me feel free to bmf :33
+Please dont be a creep istg ill block u if u do.. /bonk's u
          
           -IMPORTANT NOTES,
-i am mostly offtab or afk so, W2i {WHisper to Interact.} 
+i am mostly offtab or afk so, W2i {WHisper to Interact.} >:p 
+C + H Is my love language i would appreciate if you do want to cuddle me cuz... i like cud's :333
