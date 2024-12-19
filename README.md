@@ -87,3 +87,4 @@ Interact if you want to be friend's with me feel free to bmfff
           -IMPORTANT NOTES,
 i am mostly offtab or afk so, W2i {whisper to Interact.}
 C + H Is my love language
+SCARLING,KAZUSCARA,CHISCARA SHIPPER'S DNI!
