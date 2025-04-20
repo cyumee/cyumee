@@ -7,6 +7,7 @@ Interact if you want to be friend's with me feel free to bmfff
          
           [-IMPORTANT NOTES,]
 i am mostly offtab or afk so, W2i {whisper to Interact.}
+ALSO i strongly disagree about lgbtq+ so just block me if u feel uncomfortable on pony town since i am too feeling uncomfortable with the supporter.
 
 
 <a href="https://data-card-for-spotify.herokuapp.com/card?user_id=3132y5ugjpnc43kvdku5h5huxp6e">
