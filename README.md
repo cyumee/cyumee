@@ -1,4 +1,4 @@
-![image alt](tumblr_d48716925a238e78f7dfa96546634d88_b7828bae_2048.png)
+![image alt](https://github.com/cyumee/cyumee/blob/tumblr_d48716925a238e78f7dfa96546634d88_b7828bae_2048.png)
 
          
 
