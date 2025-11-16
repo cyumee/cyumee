@@ -1,4 +1,4 @@
-![image alt](https://github.com/cyume/cyume/blob/16189394/png-gold-celestial-lace-sparkling-ribbon)
+![image alt](tumblr_d48716925a238e78f7dfa96546634d88_b7828bae_2048.png)
 
          
 
