@@ -11,7 +11,7 @@ Scaramouche Persona
 
 
 
-i am mostly offtab or afk so, W2i {whisper to Interact.}
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4F00FF&background=38009600&width=435&lines=It's+Just+Gonna+Get+Big+And+Ugly.;Wretched+Vermin!)](https://git.io/typing-svg)
 
 
 <a href="https://data-card-for-spotify.herokuapp.com/card?user_id=3132y5ugjpnc43kvdku5h5huxp6e">
