@@ -18,5 +18,4 @@
   <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=3132y5ugjpnc43kvdku5h5huxp6e" alt="Data Card for Spotify">
 </a>
 
-My Strawpage!!:
-https://cyume.straw.page
+
